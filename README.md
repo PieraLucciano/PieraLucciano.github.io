@@ -1,0 +1,6 @@
+- [https://x.com/PieraLucciano](https://x.com/PieraLucciano)
+- [https://medium.com/@PieraLucciano](https://medium.com/@PieraLucciano)
+- [https://www.quora.com/profile/Piera-Lucciano](https://www.quora.com/profile/Piera-Lucciano)
+- [https://www.youtube.com/channel/UC0yhsxtGhWqMigIYFf9VVWA](https://www.youtube.com/channel/UC0yhsxtGhWqMigIYFf9VVWA)
+- [https://yo.fan/pieralucciano](https://yo.fan/pieralucciano)
+- [http://pieralucciano.github.io/](http://pieralucciano.github.io/)
